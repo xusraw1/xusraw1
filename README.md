@@ -8,7 +8,7 @@
 
 <div align="center">
  
-✉️  You can contact me at [xusrav200329@gmail.com](mailto:xusrav200329@gmail.com)
+✉️  You can contact me at 
 </div>
 <div>
 
